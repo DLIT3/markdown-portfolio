@@ -1,3 +1,3 @@
--Mountain Biking
--Gaming
--DIY repairs
+- Mountain Biking
+- Gaming
+- DIY repairs
