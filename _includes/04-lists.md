@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+-Mountain Biking
+-Gaming
+-DIY repairs
